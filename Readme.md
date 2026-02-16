@@ -19,6 +19,8 @@ This page provides useful open-day follow-up information [^1].
 
 [Robotics and AI](https://www.hull.ac.uk/study/undergraduate/courses/robotics-and-artificial-intelligence-bsc-meng?option=standard-course&start=2026)
 
+[Cybersecurity](https://www.hull.ac.uk/study/undergraduate/courses/computer-science-and-cybersecurity-bsc-meng-hons?option=standard-course&start=2026)
+
 ## Degree details (PDF)
 
 [Computer Science](https://hullacuk-my.sharepoint.com/:b:/g/personal/w_j_viant_hull_ac_uk/EbKU3rRIXxRElazCbmHpTE4BYfq0yuTToKut4fflmLTGDg?e=3THvfo)
