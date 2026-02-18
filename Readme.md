@@ -5,7 +5,7 @@ This page provides useful open-day follow-up information [^1].
 
 ## Applicant Day slides (PDF)
 
-[Applicant day presentation](https://hullacuk-my.sharepoint.com/:b:/g/personal/w_j_viant_hull_ac_uk/EX0cqpBzBsRNjxH5qnFFkTABD66nnFNzAd-5NiMSIzRAww?e=HfVNeV)
+[Applicant day presentation](https://1drv.ms/b/c/18a2545d5edf27fa/IQCfaKAXgUNQSLx7tYCftxbrAYfQnE0FhQbbvJ6r6Ivh2gE?e=oSJZzX)
 
 ## Degree overview (Website)
 
